@@ -1,1 +1,1 @@
-MÔ TẢ HỆ THỐNG
+MÔ TẢ HỆ THỐNG QUẢN LÝ
